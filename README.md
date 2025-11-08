@@ -28,7 +28,7 @@ Several verified purchasers on BBB mentioned experiencing results within the fir
 
 Customer service experiences also received positive mentions in BBB reviews, with users appreciating responsive support and transparent communication about the product's ingredients and expected timeline for results.
 
-Experience these results yourself—order Herpafend today!
+[Experience these results yourself—order Herpafend today!](https://orderaffproduct.com/aff/herpafend)
 
 Herpafend Reviews on Reddit: Raw User Experiences
 -------------------------------------------------
@@ -54,7 +54,7 @@ Reddit discussions provided more detailed information about usage patterns and l
 
 BBB reviews focused more heavily on customer service interactions and purchasing experiences, while Reddit users were more likely to discuss the science behind the ingredients and compare Herpafend to other supplements they had tried.
 
-Don't wait to start your journey—get Herpafend now!
+[Don't wait to start your journey—get Herpafend now!](https://orderaffproduct.com/aff/herpafend)
 
 Our Take on Herpafend: A Balanced Assessment
 --------------------------------------------
@@ -86,7 +86,7 @@ Current pricing options include:
 *   6 bottles (180-day supply): $49 per bottle with free shipping and bonuses
     
 
-Click here to secure your Herpafend supply with current discounts!
+[Click here to secure your Herpafend supply with current discounts!](https://orderaffproduct.com/aff/herpafend)
 
 The manufacturer offers a satisfaction guarantee, reflecting confidence in the product's effectiveness. All orders are backed by responsive customer service and secure payment processing through trusted platforms.
 
@@ -101,4 +101,4 @@ The scientific approach behind Herpafend, combined with positive real-world expe
 
 With overwhelmingly positive feedback across multiple platforms and a growing community of satisfied users, Herpafend appears to offer the comprehensive solution that many people have been seeking. The time to take control of your health journey is now.
 
-Start your transformation today—get Herpafend with exclusive savings!
+[Start your transformation today—get Herpafend with exclusive savings!](https://orderaffproduct.com/aff/herpafend)
